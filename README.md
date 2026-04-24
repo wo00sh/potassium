@@ -1,2 +1,2 @@
 # potassium
-why are you here you weirdo
+idk why you would want this unless youre gonna steal my images but heres the ones i used
